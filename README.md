@@ -1,0 +1,2 @@
+# orderezy
+OrderEzy Privacy Policy
